@@ -1,5 +1,5 @@
 <hr>
 <p align='center'>
-<img src=https://media.giphy.com/media/L5iCpBsEJN3E59BbxU/giphy.gif>
+<img src=https://media1.tenor.com/m/Ep_QVNj--2gAAAAd/lick.gif>
 <p>
 <hr>
